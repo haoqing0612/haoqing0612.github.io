@@ -1,12 +1,7 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- First-Prize Academic Scholarship, Northwest University, 2023.
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- Second-Prize Academic Scholarship, Northwest University, 2021.
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
+- First-Prize Academic Scholarship, Shaanxi University of Science and Technology, 2020.
 
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
